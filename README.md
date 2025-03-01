@@ -1,1 +1,2 @@
-# Trần Đình Vĩnh Khang 106220177
+HỌ và tên: Trần Đình Vĩnh Khang
+MSSV: 106220177
